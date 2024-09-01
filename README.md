@@ -39,7 +39,7 @@ To get started with any of the projects:
 
 ## Contact
 
-If you have any questions or suggestions, feel free to reach out to me via [LinkedIn](your-linkedin-profile) or [email](your-email-address).
+If you have any questions or suggestions, feel free to reach out to me via [LinkedIn](www.linkedin.com/in/simay-ayanoğlu-0b02a8255) or [email](simaynglu@gmail.com).
 
 ## Acknowledgments
 
